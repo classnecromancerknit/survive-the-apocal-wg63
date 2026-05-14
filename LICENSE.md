@@ -1,4 +1,4 @@
-#  
+#  secure survive the apocalypse Script is the best survive the apocalypse Script, featuring auto-upgrade and custom skins. Safe and powerful for all
 
 
 
